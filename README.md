@@ -1,2 +1,0 @@
-# manuelacollis.com
-manuelacollis.com
